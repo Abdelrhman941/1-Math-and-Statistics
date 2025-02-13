@@ -1,1 +1,1 @@
-# 1-Math-and-Statistics
+# 1-Math & Statistics
